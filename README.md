@@ -1,6 +1,6 @@
 ♡ㅤㅤㅤ.ㅤ°ㅤㅤㅤㅤ[strawpage](https://dollydollz.straw.page/)ㅤㅤ:ㅤㅤ[atabook](https://bunnidollz.atabook.org/)
 
-![5bca9264c9a8e805632c21724269c7d3](https://github.com/user-attachments/assets/d747716c-b00d-46b5-a540-ec9e5d2650c7)
+![Без названия191_20241124231759](https://github.com/user-attachments/assets/4df9b05f-e7f1-44c6-b911-512a68ff0f8b)
 
 просто чилловые персоникс
 ![17321637504399059873265130629981](https://github.com/user-attachments/assets/ceaab4da-927d-491f-9604-cca0b5c45aa5)

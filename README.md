@@ -1,2 +1,2 @@
-[стравпейж](https://dollydollz.straw.page/)ㅤㅤ:ㅤㅤ[атабук для хейтмейлов](https://bunnidollz.atabook.org/)
-
+[стравпейж](https://dollydollz.straw.page/)ㅤㅤ:ㅤㅤ[атабук](https://bunnidollz.atabook.org/)
+отмечайтесь мне будет очень приятна

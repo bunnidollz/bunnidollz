@@ -1,3 +1,5 @@
+C+H AND INT IS ALWAYS WELCOME!!!! (till it says dni in my status) я добрячок правда не стесняйтесь интерачить <3
+
 u can sign on my:
 
 [straw](https://dollydollz.straw.page/)ㅤㅤ:ㅤㅤ[ata](https://bunnidollz.atabook.org/)

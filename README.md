@@ -1,4 +1,4 @@
-C+H AND INT IS ALWAYS WELCOME!!!! (till it says dni in my status) я люблю интеракты очин...
+C+H AND INT IS ALWAYS WELCOME!!!! (till it says dni in my status) я люблю интеракты очень правда не стесняйтесь садитесь болтайте я не кусаюсь
 
 u can sign on my:
 

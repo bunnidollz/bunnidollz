@@ -1,6 +1,7 @@
 eng/rus
 
 C+H AND INT IS ALWAYS WELCOME!!!! (till it says dni in my status) я люблю интеракты очень правда не стесняйтесь садитесь болтайте я не кусаюсь
+also ussually im in afk so w2i to int maybe I'll answer you later
 
 u can sign on my:
 

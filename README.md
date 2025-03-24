@@ -1,7 +1,6 @@
-eng/rusㅤㅤㅤbusy status=dniuf
+c+h freely til it says busy in my status or dniuf in name
 
-yes you can cuddle+hide with me i dont mind <з
-usually in afk so if you want to int dont be scared to w2i!
+![](https://komarev.com/ghpvc/?username=your-bunnidollz&color=ff69b4&style=for-the-badge&label=^+w+^)
 
 [sign my strawpage!](https://dollydollz.straw.page/)
 
